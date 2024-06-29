@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @stanojevicbojan, to connect visit my website @ https://www.kodawarians.com
+- 👋 Hi, I’m @stanojevicbojan, see more of my work @ https://www.kodawarians.com
